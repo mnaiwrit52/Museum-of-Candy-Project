@@ -1,1 +1,1 @@
-# Museum-of-Candy-Project
+# Museum of Candy Project 🍭🍬
